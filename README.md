@@ -1,1 +1,1 @@
-# cankanoa.github.io
+# Kanoa Lindiwe
